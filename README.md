@@ -1,13 +1,7 @@
 ### Hi!!! Eu sou Milena 🧠
 ✌🏼 🇧🇷
 computer science student 🪐 
-
-
-
-
-
-![Jujuba](https://github.com/milena975/milena975/blob/main/tenor.gif)
-
+![Jujuba](https://github.com/milena975/milena975/blob/main/tenor%20(1).gif)
 
 
 
